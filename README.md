@@ -22,6 +22,6 @@ Here are some ideas to get you started:
 
 - Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-  ( Caso tenha alguma duvida pode entrar em contanto comigo! 📫 💬 )
+  **Caso tenha alguma duvida pode entrar em contanto comigo! 📫 💬**
 
   00001201942482sp@al.educacao.sp.gov.br
